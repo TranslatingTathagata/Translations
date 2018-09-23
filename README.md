@@ -10,6 +10,6 @@ The goal of this repo is to serve as a scalable and long-term solution to aggreg
 
 
 ###LEGAL
-All content subject to copyright of respective owners e.g. Nature’s Teaching Magazine, Enlightenment of Tathagata, Society of Natural Science, and Translating Tathagata (c) 2018
+All content subject to copyright of respective owners e.g. Nature’s Teaching Magazine, Enlightenment of Tathagata, Society of Natural Science, and Translating Tathagata (c) 2018.
 
 All content may only be shared or used in whole or in part by including original attribution and links. 
