@@ -1,1 +1,1 @@
-###The Square of Truth Please ask of anything.  What may I help you with?  I will diagnose the worldly events.   &lt;From Pagoda Park, October, 1990&gt;
+### The Square of Truth Please ask of anything.  What may I help you with?  I will diagnose the worldly events.   &lt;From Pagoda Park, October, 1990&gt;
